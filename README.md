@@ -23,4 +23,4 @@ The aim is to make learning about current affairs both engaging and insightful, 
 With a commitment to accuracy and relevance, it helps you sift through information, focus on key facts, and explore the bigger picture.
 
 # Contact
-Feel free to reach out with questions, suggestions, or feedback. We’re here to make understanding the Indian stock market easy and accessible for everyone!
+Feel free to reach out with questions, suggestions, or feedback. We’re here to make understanding current affairs easy and accessible for everyone!
